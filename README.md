@@ -1,1 +1,1 @@
-# Atrabalho faculdade, Academia
+# Trabalho faculdade, Academia
